@@ -1,0 +1,1 @@
+# Estadistica-inferencial-y-muestreo-Mariana-Su-rez
